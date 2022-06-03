@@ -2,4 +2,4 @@
 猫熊域名发布页：
 </br>未被墙域名：
 </br>已弃用域名：猫熊.xyz 和 是猫熊.com （中文域名，包括“是”）
-</br>目前官网：mxwljsq.com
+</br>目前官网：mxwljsq.top
